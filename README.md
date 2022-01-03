@@ -1,3 +1,3 @@
 # Always_new_Jaukssssssss
 Whenever you click on it...
-It popped up with new jokes. 
+It pops up with new jokes. 
